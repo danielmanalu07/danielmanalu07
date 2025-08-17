@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi There's, I am Software Developer with experience 2 years. Currently i am only build web and mobile Apps.<br>I am also someone who like's for problem solving in programming to work in team for a project and also<br>have a good communication and time management.<br><br>If you want to see my profile, you can visit my portfolio website below:<br>https://daniel-manalu.site 
+Hi There's, I am Software Developer with experience 3 years. Currently i am only build web and mobile Apps.<br>I am also someone who like's for problem solving in programming to work in team for a project and also<br>have a good communication and time management.<br><br>If you want to see my profile, you can visit my portfolio website below:<br>https://daniel-manalu.site 
 
 
 ## 🌐 Socials:
